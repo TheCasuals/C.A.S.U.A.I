@@ -1,4 +1,4 @@
-## Welcome to G.A.S.U.A.I's Official Website
+## Welcome to C.A.S.U.A.I's Official Website
 
 # Support
 Want to ask us a question?
